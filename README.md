@@ -1,0 +1,2 @@
+# lists_ustida_amallar
+1dan_10darajagacha
